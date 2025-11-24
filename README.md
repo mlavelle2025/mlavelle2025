@@ -8,7 +8,7 @@ Below are listed some of the effects of this targeting and im unsure how to proc
 
 I'm having trouble reaching out to people for help.
 
-## My home is currently being bombarded with what i believe to be "Pulsed Microwave Radiation",
+## My home is currently being bombarded with what i believe to be "Pulsed Microwave Radiation"
 
 This electromagnetic radiation I believe is similar to that described by those affected by Havana Syndrome
 
