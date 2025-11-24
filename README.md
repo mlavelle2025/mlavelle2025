@@ -1,6 +1,6 @@
 # Message in a bottle
 
-I'm writing this today because im currently being targeted by a number of psychopaths, one of whom i believe is my cousin Judi. 
+I'm writing this today because im currently being targeted by a number of psychopaths, three of whom i believe are my cousin Judi, her mother Patricia, and Elton John.
 
 Below are listed some of the effects of this targeting and im unsure how to proceed.
 
@@ -22,8 +22,8 @@ This persists despite many attempts to erase and wipe the device - it appears to
 
 When I'm on my phone the symptoms may subside, but as soon as I interact with devices on other networks such as home broadband ( eg watch TV), my symptoms escalate massively.  I have a feeling that my activity on my phone is being monitored and that someone is enjoying watching what I'm doing on this compromised phone.
 
-## I believe I'm being targeted by my psychopathic cousin Judi, 
+## I believe I'm being targeted by my psychopathic cousin Judi, her psychopathic mother Patricia, and the psychopath Elton John.
 
-She has been stalking me for years and seems to be obsessed with me.  I believe that watching what I'm watching on the phone is part of this stalking, and that she is upset when i do anything she cannot monitor, and that's when I experience an increase in symptoms. I am currently unable to watch TV for more than a minute or two before the symptoms become too painful.
+They have been stalking me for years and seem to be obsessed with me.  I believe that watching what I'm watching on the phone is part of this stalking, and that they are upset when i do anything they cannot monitor, and that's when I experience an increase in symptoms. I am currently unable to watch TV for more than a minute or two before the symptoms become too painful.
 
 
