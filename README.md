@@ -1,16 +1,17 @@
-## Hi there 👋
+# Message in a bottle
 
-<!--
-**mlavelle2025/mlavelle2025** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+I'm writing this today because im currently being targetted by a number of psychopaths, one of whom i believe is my cousin Judi. 
 
-Here are some ideas to get you started:
+Below are listed some of the effects of this targetting and im unsure how to proceed.
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+## It looks like I'm "Shadow Banned" on the internet - I'm having trouble reaching out to people for help.
+
+## My home is currently being bombarded with what i believe to be "Pulsed Microwave Radiation", as described by those affected by Havana Syndrome, and im experiencing extremely unpleasant symptoms consistent with this.
+
+## My phone is being repeatedly hacked, despite many attempts to erase and wipe the device - it appears to be spyware similar in nature to Pegasus.
+
+## I experience an increase in Havana Syndrome symptoms whenever I am relaxing at home and not using my phone. When I'm on my phone the symptoms may subside, but as soon as I interact with devices on other networks such as home broadband ( eg watch TV), my symptoms escalate massively.  I have a feeling that my activity on my phone is being monitored and that someone is enjoying watching what I'm doing on this compromised phone.
+
+## I believe I'm being targeted by my psychopathic cousin Judi, who has been stalking me for years and seems to be obsessed with me.  I believe that watching what I'm watching on the phone is part of this stalking, and that she is upset when i do anything she cannot monitor, and that's when I experience an increase in symptoms. I am currentlt unable to watch TV for more than a minute or two before the symptoms become too painful.
+
+
