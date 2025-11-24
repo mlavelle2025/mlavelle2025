@@ -1,16 +1,18 @@
 # Message in a bottle
 
-I'm writing this today because im currently being targetted by a number of psychopaths, one of whom i believe is my cousin Judi. 
+I'm writing this today because im currently being targeted by a number of psychopaths, one of whom i believe is my cousin Judi. 
 
-Below are listed some of the effects of this targetting and im unsure how to proceed.
+Below are listed some of the effects of this targeting and im unsure how to proceed.
 
 ## It looks like I'm "Shadow Banned" on the internet.
 
 I'm having trouble reaching out to people for help.
 
-## My home is currently being bombarded with what i believe to be "Pulsed Microwave Radiation", as described by those affected by Havana Syndrome
+## My home is currently being bombarded with what i believe to be "Pulsed Microwave Radiation",
 
-I'm experiencing extremely unpleasant symptoms consistent with this.
+This electromagnetic radiation I believe is similar to that described by those affected by Havana Syndrome
+
+I'm experiencing extremely unpleasant symptoms consistent with Havana Syndrome
 
 ## My phone is being repeatedly hacked
 
